@@ -1,0 +1,1 @@
+Lab môn này không thi nên không cho
